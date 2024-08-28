@@ -1,6 +1,7 @@
 ## Required Items Personal:
 
 - Socks x4
+- Boots Walking High Heel
 - Pants x4
 - Trouser x1
 - shorts
