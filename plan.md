@@ -1,5 +1,6 @@
 ## Required Items Personal:
 
+- Bag 50+L
 - Socks x4
 - Boots Walking High Heel
 - Pants x4
